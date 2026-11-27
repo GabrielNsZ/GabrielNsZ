@@ -55,4 +55,4 @@ Evoluir na área de Inteligência Artificial, aprimorar minhas habilidades em de
 
 - GitHub: [@GabrielNsZ](https://github.com/GabrielNsZ)
 
-**Sempre aprendendo, desenvolvendo e explorando novas possibilidades através da tecnologia.** 🚀
+**Sempre aprendendo, desenvolvendo e explorando novas possibilidades através da tecnologia.** 
